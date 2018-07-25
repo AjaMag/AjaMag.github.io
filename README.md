@@ -1,0 +1,1 @@
+# AjaMag.github.io
